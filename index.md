@@ -1,37 +1,35 @@
-## Welcome to GitHub Pages
+## Kristopher and Kana 
 
-You can use the [editor on GitHub](https://github.com/KristopherGBaker/kana.krisbaker.com/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
+Welcome to our wedding website! We will add more content soon, but for now please check out the following links.
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+### Pre-wedding photos
 
-### Markdown
+[Our pre-wedding photos taken on December 23, 2021](https://kana.krisbaker.com/maedori.html)
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
+### Registry
 
-```markdown
-Syntax highlighted code block
+Since we live in Japan, it's a little difficult to setup an normal gift registry, but we have setup a cash fund registry to help us pay for things like our upcoming trip to the US and honeymoon.
 
-# Header 1
-## Header 2
-### Header 3
+[Registry](https://www.theknot.com/us/kristopher-baker-and-kana-shimonishi-mar-2022/registry)
 
-- Bulleted
-- List
+### RSVP
 
-1. Numbered
-2. List
+Please RSVP to let us know if you'll be watching our wedding live stream.
 
-**Bold** and _Italic_ and `Code` text
+[RSVP](https://forms.gle/U7wABWw69UZ2xaSz7)
 
-[Link](url) and ![Image](src)
-```
+### YouTube Live Stream
 
-For more details see [Basic writing and formatting syntax](https://docs.github.com/en/github/writing-on-github/getting-started-with-writing-and-formatting-on-github/basic-writing-and-formatting-syntax).
+Our wedding will stream live on YouTube.  The ceremony will last about 30 minutes. Please watch it live if you can, and if not, it will be available for 2 months after the wedding.
 
-### Jekyll Themes
+Tuesday, March 29, 2022 (US time)
+- 8:30PM PDT
+- 9:30PM MDT
+- 10:30PM CDT
+- 11:30PM EDT
 
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/KristopherGBaker/kana.krisbaker.com/settings/pages). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
+Wednesday, March 30, 2022 (Japan / SG time)
+- 11:30PM SNST
+- 12:30PM JST
 
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://support.github.com/contact) and we’ll help you sort it out.
+[youtu.be/zpeKMXSgHXY](https://youtu.be/zpeKMXSgHXY)
