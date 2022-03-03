@@ -26,6 +26,10 @@ Wednesday, March 30, 2022 (Japan / SG time)
 
 [youtu.be/zpeKMXSgHXY](https://youtu.be/zpeKMXSgHXY){:target="_blank"}
 
+**Calendar**
+
+[Add the live stream to your calendar.](https://calendar.google.com/event?action=TEMPLATE&tmeid=MTBpanRvdHU1b2RwODNvajYwdmNmcHQzdXUga3Jpc3RvcGhlci5nLmJha2VyQG0&tmsrc=kristopher.g.baker%40gmail.com){:target="_blank"}
+
 ### [Registry](https://www.theknot.com/kristopherandkana/registry){:target="_blank"}
 
 Since we live in Japan it's a little difficult to setup a normal gift registry, but we have setup a cash fund registry to help us pay for things like our upcoming trip to the US and honeymoon. Please use the registry to send a gift if you like, but we're happy even if you can just watch the live stream.
