@@ -1,5 +1,7 @@
 ## Kristopher and Kana 
 
+**[日本語](index.ja.html)** | **[English](index.html)**
+
 Welcome to our wedding website! We will add more content soon, but for now please check out the following links.
 
 ### [RSVP](https://forms.gle/U7wABWw69UZ2xaSz7){:target="_blank"}
@@ -29,6 +31,12 @@ Wednesday, March 30, 2022 (Japan / SG time)
 **Calendar**
 
 [Add the live stream to your calendar.](https://calendar.google.com/event?action=TEMPLATE&tmeid=MTBpanRvdHU1b2RwODNvajYwdmNmcHQzdXUgMGtodG90MXJyb2M3aGw2Z2tqbzJham9rZG9AZw&tmsrc=0khtot1rroc7hl6gkjo2ajokdo%40group.calendar.google.com){:target="_blank"}
+
+### [Ceremony](https://kana.krisbaker.com/assets/pdf/japanese-wedding.pdf){:target="_blank"}
+
+The ceremony will be conducted in Japanese, but you can read the ceremony guide in English to get an idea of what's happening.
+
+[kana.krisbaker.com/assets/pdf/japanese-wedding.pdf](https://kana.krisbaker.com/assets/pdf/japanese-wedding.pdf){:target="_blank"}
 
 ### [Registry](https://www.theknot.com/kristopherandkana/registry){:target="_blank"}
 
