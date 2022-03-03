@@ -4,6 +4,12 @@
 
 Welcome to our wedding website! We will add more content soon, but for now please check out the following links.
 
+- [RSVP](#rsvp)
+- [Youtube Live Stream](#youtube-live-stream)
+- [Ceremony](#ceremony)
+- [Registry](#registry)
+- [Pre-wedding Photos](#pre-wedding-photos)
+
 ### [RSVP](https://forms.gle/U7wABWw69UZ2xaSz7){:target="_blank"}
 
 Please RSVP to let us know if you'll be watching our wedding live stream.
