@@ -21,7 +21,7 @@ Tuesday, March 29, 2022 (US time)
 - 11:30PM EDT
 
 Wednesday, March 30, 2022 (Japan / SG time)
-- 11:30PM SNST
+- 11:30PM SGT
 - 12:30PM JST
 
 [youtu.be/zpeKMXSgHXY](https://youtu.be/zpeKMXSgHXY){:target="_blank"}
