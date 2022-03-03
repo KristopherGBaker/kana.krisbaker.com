@@ -50,6 +50,8 @@ Since we live in Japan it's a little difficult to setup a normal gift registry, 
 
 [www.theknot.com/kristopherandkana/registry](https://www.theknot.com/us/kristopher-baker-and-kana-shimonishi-mar-2022/registry){:target="_blank"}
 
+Alternatively you can use [Venmo](https://kana.krisbaker.com/assets/img/IMG_1236.JPG)
+
 ### [Pre-wedding photos](https://www.icloud.com/sharedalbum/#B0SGY8gBYGl16Rp){:target="_blank"}
 
 We took pre-wedding photos on December 23, 2021. Please check them out!
