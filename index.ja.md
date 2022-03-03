@@ -6,11 +6,11 @@
 
 今後情報を追記しますが　まずは以下ご確認ください
 
-### [RSVP](https://forms.gle/U7wABWw69UZ2xaSz7)
+### [RSVP](https://forms.gle/LcWsbDX6Ru5CGQBu9)
 
 私たちの結婚式のライブ配信をご覧いただける方は、以下のリンクから出席のお返事をください
 
-[forms.gle/U7wABWw69UZ2xaSz7](https://forms.gle/U7wABWw69UZ2xaSz7)
+[forms.gle/LcWsbDX6Ru5CGQBu9](https://forms.gle/LcWsbDX6Ru5CGQBu9)
 
 ### [YouTube Live Stream](https://youtu.be/zpeKMXSgHXY)
 
