@@ -26,11 +26,11 @@ Wednesday, March 30, 2022 (Japan / SG time)
 
 [youtu.be/zpeKMXSgHXY](https://youtu.be/zpeKMXSgHXY){:target="_blank"}
 
-### [Registry](https://www.theknot.com/us/kristopher-baker-and-kana-shimonishi-mar-2022/registry){:target="_blank"}
+### [Registry](https://www.theknot.com/kristopherandkana/registry){:target="_blank"}
 
 Since we live in Japan it's a little difficult to setup a normal gift registry, but we have setup a cash fund registry to help us pay for things like our upcoming trip to the US and honeymoon. Please use the registry to send a gift if you like, but we're happy even if you can just watch the live stream.
 
-[www.theknot.com/us/kristopher-baker-and-kana-shimonishi-mar-2022/registry](https://www.theknot.com/us/kristopher-baker-and-kana-shimonishi-mar-2022/registry){:target="_blank"}
+[www.theknot.com/kristopherandkana/registry](https://www.theknot.com/us/kristopher-baker-and-kana-shimonishi-mar-2022/registry){:target="_blank"}
 
 ### [Pre-wedding photos](https://www.icloud.com/sharedalbum/#B0SGY8gBYGl16Rp){:target="_blank"}
 
