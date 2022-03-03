@@ -6,7 +6,7 @@ Welcome to our wedding website! We will add more content soon, but for now pleas
 
 Please RSVP to let us know if you'll be watching our wedding live stream.
 
-[https://forms.gle/U7wABWw69UZ2xaSz7](https://forms.gle/U7wABWw69UZ2xaSz7){:target="_blank"}
+[forms.gle/U7wABWw69UZ2xaSz7](https://forms.gle/U7wABWw69UZ2xaSz7){:target="_blank"}
 
 ### [YouTube Live Stream](https://youtu.be/zpeKMXSgHXY){:target="_blank"}
 
