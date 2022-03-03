@@ -50,7 +50,7 @@ Since we live in Japan it's a little difficult to setup a normal gift registry, 
 
 [www.theknot.com/kristopherandkana/registry](https://www.theknot.com/us/kristopher-baker-and-kana-shimonishi-mar-2022/registry)
 
-Alternatively you can use [Venmo](https://kana.krisbaker.com/assets/img/IMG_1236.JPG)
+Alternatively you can use [Venmo](https://kana.krisbaker.com/assets/img/IMG_1236.JPG) (or [PayPay](https://kana.krisbaker.com/assets/img/paypay.png) in Japan)
 
 ### [Pre-wedding photos](https://www.icloud.com/sharedalbum/#B0SGY8gBYGl16Rp)
 
