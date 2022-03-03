@@ -28,7 +28,7 @@ Wednesday, March 30, 2022 (Japan / SG time)
 
 **Calendar**
 
-[Add the live stream to your calendar.](https://calendar.google.com/event?action=TEMPLATE&tmeid=MTBpanRvdHU1b2RwODNvajYwdmNmcHQzdXUga3Jpc3RvcGhlci5nLmJha2VyQG0&tmsrc=kristopher.g.baker%40gmail.com){:target="_blank"}
+[Add the live stream to your calendar.](https://calendar.google.com/event?action=TEMPLATE&tmeid=MTBpanRvdHU1b2RwODNvajYwdmNmcHQzdXUgMGtodG90MXJyb2M3aGw2Z2tqbzJham9rZG9AZw&tmsrc=0khtot1rroc7hl6gkjo2ajokdo%40group.calendar.google.com){:target="_blank"}
 
 ### [Registry](https://www.theknot.com/kristopherandkana/registry){:target="_blank"}
 
