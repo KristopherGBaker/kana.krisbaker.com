@@ -6,13 +6,13 @@
 
 今後情報を追記しますが　まずは以下ご確認ください
 
-### [RSVP](https://forms.gle/U7wABWw69UZ2xaSz7){:target="_blank"}
+### [RSVP](https://forms.gle/U7wABWw69UZ2xaSz7)
 
 私たちの結婚式のライブ配信をご覧いただける方は、以下のリンクから出席のお返事をください
 
-[forms.gle/U7wABWw69UZ2xaSz7](https://forms.gle/U7wABWw69UZ2xaSz7){:target="_blank"}
+[forms.gle/U7wABWw69UZ2xaSz7](https://forms.gle/U7wABWw69UZ2xaSz7)
 
-### [YouTube Live Stream](https://youtu.be/zpeKMXSgHXY){:target="_blank"}
+### [YouTube Live Stream](https://youtu.be/zpeKMXSgHXY)
 
 挙式の時間はおよそ30分間で、ライブ配信はYoutubeにて行われます
 
@@ -22,10 +22,10 @@
 
 2022年3月30日(水)　12:30~
 
-[youtu.be/zpeKMXSgHXY](https://youtu.be/zpeKMXSgHXY){:target="_blank"}
+[youtu.be/zpeKMXSgHXY](https://youtu.be/zpeKMXSgHXY)
 
-### [Pre-wedding photos](https://www.icloud.com/sharedalbum/#B0SGY8gBYGl16Rp){:target="_blank"}
+### [Pre-wedding photos](https://www.icloud.com/sharedalbum/#B0SGY8gBYGl16Rp)
 
 2021年12月23日に、結婚式の前撮りをしたのでぜひチェックしてみてください！
 
-[www.icloud.com/sharedalbum/#B0SGY8gBYGl16Rp](https://www.icloud.com/sharedalbum/#B0SGY8gBYGl16Rp){:target="_blank"}
+[www.icloud.com/sharedalbum/#B0SGY8gBYGl16Rp](https://www.icloud.com/sharedalbum/#B0SGY8gBYGl16Rp)
