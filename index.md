@@ -10,12 +10,6 @@ Welcome to our website!
 - [Pre-wedding Photos](#pre-wedding-photos)
 - [Wedding Photos](#wedding-photos)
 
-### [RSVP](https://forms.gle/U7wABWw69UZ2xaSz7)
-
-Please RSVP to let us know if you'll be watching our wedding live stream.
-
-[forms.gle/U7wABWw69UZ2xaSz7](https://forms.gle/U7wABWw69UZ2xaSz7)
-
 ### [Watch our Wedding](https://youtu.be/Ip6Jq81-ZZM)
 
 We officially got married on February 23, 2022, and had our ceremony on March 30, 2022. You can watch our wedding on YouTube.
